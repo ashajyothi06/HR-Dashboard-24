@@ -9,7 +9,6 @@ Lets Connect
 
 [Go to my LinkedIn](https://www.linkedin.com/in/velpula-ashajyothi-1409981b0/) 🌐
 
-[Go to My Dashboard](https://public.tableau.com/app/profile/gulshan.gedam/viz/HRANALYTICSDASHBOARD-ACOMPLETEEMPLOYEEDATAANALYSIS/HRDashboard?publish=yes)
 
 ## PROJECT NAME:
 
